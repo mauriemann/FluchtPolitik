@@ -61,6 +61,9 @@ Zudem gibt durchaus wichtige Elemente politischer Teilhabe unterhalb der Staatsb
 
 >"Political activities of refugees should not be read narrowly as confined to claiming asylum or protesting living conditions but must be seen in the wider context of political expression and opinions.“ (Schmalz 2020)
 
+Vor allem auf der Ebene lokaler Strukturen und Beteiligung verliert die Unterscheidung zwischen Citizens und Non-Citizens vor allem zivilgesellschaftlich an Relevanz (Kersting 2019) und eröffnet ein starkes Demokratisierungspotenziel. Allerdings kann eine zunehmend migrantisch geprägte Zivilgesellschaft, die von staatlichen Institutionen nicht anerkannt wird, die Kluft zwischen Staat und politisch aktiver Zivilgesellschaft vergrößern (Ullrich 2025).
+
+
 ### Einbürgerungsdilemma
 
 Ohne sinnvolle Perspektive auf politische Teilhabe und Einbürgerung von *resident aliens* besteht die Gefahr einer dauerhaften Statusdifferenz, die sich delegitimierend auf die Demokratie auswirkt. 
