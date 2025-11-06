@@ -49,11 +49,15 @@ Erstens auf der Ebene radikal-agonaldemokratischer Theorie, zum Beispiel im Ansc
 
 Oder in der Weiterentwicklung von Isin ein "act of citizenship" und ein notwendiger, irregulärer Akt der Ausübung politischer Teilhaberechte. Bei Isin ist citzenship (Staatsbürgerschaft) eine Tätigkeit und weniger ein rechtlicher Status.
 
-Die so gewonnene Perspektive auf Geflüchtete als politische Akteure birgt aber auch die Gefahr einer Überpolitisierung. Was geschieht mit Personen, die nicht öffentlich in Erscheinung treten wollen, oder für "acts of citizenship" zu vulnerabel sind?
+Die so gewonnene Perspektive auf Geflüchtete als politische Akteur:innen birgt aber auch die Gefahr einer Überpolitisierung. Was geschieht mit Personen, die nicht öffentlich in Erscheinung treten wollen, oder für "acts of citizenship" zu vulnerabel sind?
  
 Im deliberativ-liberalen Paradigma hingegen geschieht diese Aufnahme nach geregelten politischen Verfahren und mündet in einem Prozess der Naturalisation bis hin zur vollen Einbürgerung. Das bedeutet zwar nicht, dass Migrierende während dieses Prozesses gar keine Stimme haben, lässt aber auch offen, ob sie vom Diskurs der Staatsbürger:innen überhaupt wahrgenommen werden. 
 
-Unter den Voraussetzungen staatlich verfasster Demokratien ist das Recht auf politische Mitgliedschaft, respektive die Staatsbürgerschaft des Landes, indem man lebt, weiterhin die beste Voraussetzung dafür, ein politischer Akteur sein zu können, und wie sich gerade zeigt, auch der einzig wirksame Schutz vor willkürlicher Abschiebung. Während dieses Recht unter Staatsbürger:innen schlicht wie ein Privileg vererbt wird, muss es von Migrierenden erworben werden. Bisweilen muss die Sichtbarkeit für diese Anliegen schlicht erstritten werden. 
+Unter den Voraussetzungen staatlich verfasster Demokratien ist das Recht auf politische Mitgliedschaft, respektive die Staatsbürgerschaft des Landes, indem man lebt, weiterhin die beste Voraussetzung dafür, ein:e politische:r Akteur:in sein zu können, und wie sich gerade zeigt, auch der einzig wirksame Schutz vor willkürlicher Abschiebung. Während dieses Recht unter Staatsbürger:innen schlicht wie ein Privileg vererbt wird, muss es von Migrierenden erworben werden. Bisweilen muss die Sichtbarkeit für diese Anliegen schlicht erstritten werden. 
+
+Zudem gibt durchaus wichtige Elemente politischer Teilhabe unterhalb der Staatsbürgerschaft, die die Sichtbarkeit für Partizipations- und Inklusionsansprüche von Geflüchteten erhöhen: 
+
+>"Political activities of refugees should not be read narrowly as confined to claiming asylum or protesting living conditions but must be seen in the wider context of political expression and opinions.“ (Schmalz 2020)
 
 ### Einbürgerungsdilemma
 
