@@ -68,7 +68,7 @@ Vor allem auf der Ebene lokaler Strukturen und Beteiligung verliert die Untersch
 
 Ohne sinnvolle Perspektive auf politische Teilhabe und Einbürgerung von *resident aliens* besteht die Gefahr einer dauerhaften Statusdifferenz, die sich delegitimierend auf die Demokratie auswirkt. 
 
-In Deutschland leben aktuell rund 14 Millionen Menschen ohne deutschen Pass. Das sind rund 15% der Gesamtbevölkerung. Im Jahr 2024 erhielten rund 200.000 Personen die deutsche Staastangehörigkeit. Selbst ohne weitere Zuwanderung würde es also 70 Jahre dauern, bis alle eingebürgert wären.
+In Deutschland leben aktuell rund 14 Millionen Menschen ohne deutschen Pass. Das sind rund 15% der Gesamtbevölkerung. Im Jahr 2024 erhielten rund 200.000 Personen die deutsche Staatsangehörigkeit. Selbst ohne weitere Zuwanderung würde es also 70 Jahre dauern, bis alle eingebürgert wären.
 
 Es entwickelt sich also eine wachsendes Demokratiedefizit insofern, als eine alternde, schrumpfende Bevölkerung der Staatsbürger*innen eine zunehmende *Denizen*-Bevölkerung regiert, ohne sie angemessen an der politischen Repräsentation und Mitbestimmung zu beteiligen.
 
