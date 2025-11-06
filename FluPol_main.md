@@ -13,7 +13,7 @@ narrator: UK English Female
 
 **Vortrag für die Seebrücke am 06.11.2025**
 
-Moritz Riemann, M.A. (Dr. des.)
+Moritz Riemann
 
 Kontakt: riemann@philsem.uni-kiel.de
 
