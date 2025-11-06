@@ -1,0 +1,26 @@
+<!--
+
+author: Moritz Riemann
+email:  riemann@philsem.uni-kiel.de
+version: 0.1
+language: en
+narrator: UK English Female
+
+\-->
+
+
+# Flucht und politische Theorie
+
+**Vortrag für die Seebrücke am 06.11.2025**
+
+Moritz Riemann, M.A. (Dr. des.)
+
+Kontakt: riemann@philsem.uni-kiel.de
+
+## Ein paar Grundprobleme
+
+![Berlin 2013](img/fluechtlinge-dpa_Berlin2013.jpeg)
+
+### 1. Migration ist eine gesellschaftliche Realität und Normalität. Flucht und Vertreibung als Formen prekärer und erzwungener Migration sind existenzielle, soziale, ökonomische, rechtliche und politische Ausnahmezustände, die nicht selten mit einer völligen Entrechtung und Immobilisierung der betroffenen Personen einhergehen.
+
+Beispiel: Fachkräftemigration wird befördert, während Flüchtlinge in Internierungslagern für die Verfahrensprüfung auf greichischen Inseln interniert werden
