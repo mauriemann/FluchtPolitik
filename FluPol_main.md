@@ -47,7 +47,7 @@ Hier kann man in zwei Strömungen argumentieren:
 
 Erstens auf der Ebene radikal-agonaldemokratischer Theorie, zum Beispiel im Anschluss an Jacques Rancière und Étienne Balibar. Hier geht es darum, sich in einem prinzipiellen Spannungsverhältnis zwischen Institutionen (Polizei/Konstituierte Macht) zu verorten und sich seinen politischen Anteil zu erstreiten, indem die etablierte Herrschaftlogik unterbrochen wird. Dies ist in Rancières Verständnis dann Politik als Subjektivierungsprozess. 
 
-Oder in der Weiterentwicklung von Isin ein "act of citizenship" und ein notwendiger, irregulärer Akt der Ausübung politischer Teilhaberechte. Bei Isin ist citzenship (Staatsbürgerschaft) eine Tätigkeit und weniger ein rechtlicher Status.
+Engin Isin spricht von "acts of citizenship" als notwendigen, irregulären Akten der Ausübung politischer Teilhaberechte. Bei Isin ist citzenship (Staatsbürgerschaft) eine Tätigkeit und weniger ein rechtlicher Status.
 
 Die so gewonnene Perspektive auf Geflüchtete als politische Akteur:innen birgt aber auch die Gefahr einer Überpolitisierung. Was geschieht mit Personen, die nicht öffentlich in Erscheinung treten wollen, oder für "acts of citizenship" zu vulnerabel sind?
  
