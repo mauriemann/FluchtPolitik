@@ -27,7 +27,9 @@ Migration ist eine gesellschaftliche Realität und Normalität. Flucht und Vertr
 
 Dennoch ist es durch die zahlreichen diskursiven, phänomenalen und nicht zuletzt politischen Überlappungen nicht möglich, kategorial zwischen Fluchtmigration und freiwilliger Wirtschaftsmigration zu unterscheiden, insbesondere dann nicht, wenn man den Einwanderungsaspekt und die Transnationalisierung der Lebensverhältnisse mitbedenkt.
 
-Beispiel: Fachkräftemigration wird befördert, während Flüchtlinge in Internierungslagern für die Verfahrensprüfung auf griechischen Inseln interniert werden. Beides wird medial mal als Migration verschlagwortet oder im sog. "Stadtbild" als illegale Flüchtlinge stereotypisiert.
+Beispiel: 
+
+Fachkräftemigration wird befördert, während Geflüchtete in Internierungslagern für die Prüfung ihres Asylantrags auf griechischen Inseln eingesperrt werden. Beides wird medial mal als Migration verschlagwortet oder im sog. "Stadtbild" als "illegale Flüchtlinge" stereotypisiert.
 
 ### Humanitäres und politisches Asyl
 
@@ -66,5 +68,23 @@ Ohne sinnvolle Perspektive auf politische Teilhabe und Einbürgerung von *reside
 In Deutschland leben aktuell rund 14 Millionen Menschen ohne deutschen Pass. Das sind rund 15% der Gesamtbevölkerung. Im Jahr 2024 erhielten rund 200.000 Personen die deutsche Staastangehörigkeit. Selbst ohne weitere Zuwanderung würde es also 70 Jahre dauern, bis alle eingebürgert wären.
 
 Es entwickelt sich also eine wachsendes Demokratiedefizit insofern, als eine alternde, schrumpfende Bevölkerung der Staatsbürger*innen eine zunehmende *Denizen*-Bevölkerung regiert, ohne sie angemessen an der politischen Repräsentation und Mitbestimmung zu beteiligen.
+
+### Postmigrantische Emanzipationsgesellschaften
+
+Gesellschaften sind nie ohne Migration und Flüchtlingsschutz ist integral mit den Prinzipien der Demokratie verknüpft.
+
+> Aus der Perspektive einer Sozietät in Bewegung ist es keine moralische und keine rechtliche Frage mehr, ob Wanderungen ‚legitim‘ sind; Wanderungen sind. Es ist aber eine politische Aufgabe, einen – im besten Fall demokratisch legitimierten und am Menschen orientierten – Umgang mit den Bewegungen zu finden. (Ehrenfeld 2022)
+
+> Die Gleichberechtigung aller Menschen auf diesem Erdball ist mehr als eine theoretische Vorgabe oder eine utopische Zielbestimmung: Sie ist das Minimum, das aus dem überkommenen Emanzipationsbegriff gewahrt werden muß, um politisch rational handlungsfähig bleiben zu können. (Koselleck 2010)
+
+Im Verhältnis von Flucht und Demokratie sind nicht allein fliehende Menschen und prekär Migrierende Subjekte eines Emanzipationsprozesses, der in eine Verwirklichung privater und politischer Autonomie münden soll. 
+
+Ebenso sind die exkludierenden wie inkludierenden politischen Gemeinschaften vor allem zur Selbstreflexion und Iteration aufgefordert. Dazu gehört zum Beispiel die Überwindung rassistischer Ausgrenzungen und von Grenzen innerhalb der Gesellschaft, ebenso wie die Anerkennung einer Gleichheit von Rechten und Verpflichtungen.
+
+### Schluss
+
+**Danke für Eure Aufmerksamkeit, ich freue mich auf die Diskussion!**
+
+
 
 
