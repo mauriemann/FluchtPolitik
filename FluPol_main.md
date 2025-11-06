@@ -41,4 +41,23 @@ Die aktuellen Entwicklungen, insbesondere der GEAS-Reformen zeigen allerdings, d
 
 ### Verhältnis Migration und Demokratie
 
+Wenn das Ziel der Flucht ist, wieder ein freies, handlungsfähiges politisches Subjekt zu werden, dann ist Flucht ein Prozess politischer Subjektivierung. Es bleibt also die Frage zu beantworten, unter welchen demokratietheoretischen Paradigmen dies betrachtet werden kann.
+
+Hier kann man in zwei Strömungen argumentieren: Erstens auf der Ebene radikal-agonaldemokratischer Theorie, zum Beispiel im Anschluss an Jacques Rancière und Étienne Balibar. Hier geht es darum, sich in einem prinzipiellen Spannungsverhältnis zwischen Institutionen (Polizei/Konstituierte Macht) zu verorten und sich seinen politischen Anteil zu erstreiten, indem die etablierte Herrschaftlogik unterbrochen wird. Dies ist in Rancières Verständnis dann Politik als Subjektivierungsprozess. 
+
+Oder in der Weiterentwicklung von Isin ein "act of citizenship" und ein notwendiger, irregulärer Akt der Ausübung politischer Teilhaberechte. Bei Isin ist citzenship (Staatsbürgerschaft) eine Tätigkeit und weniger ein rechtlicher Status.
+
+Die so gewonnene Perspektive auf Geflüchtete als politische Akteure birgt aber auch die Gefahr einer Überpolitisierung. Was geschieht mit Personen, die nicht öffentlich in Erscheinung treten wollen, oder für "acts of citizenship" zu vulnerabel sind?
+ 
+
+Im deliberativ-liberalen Paradigma hingegen geschieht diese Aufnahme nach geregelten politischen Verfahren und mündet in einem Prozess der Naturalisation bis hin zur vollen Einbürgerung. Das bedeutet zwar nicht, dass Migrierende während dieses Prozesses gar keine Stimme haben, lässt aber auch offen, ob sie vom Diskurs der Staatsbürger:innen überhaupt wahrgenommen werden. 
+
+Unter den Voraussetzungen staatlich verfasster Demokratien ist das Recht auf politische Mitgliedschaft, respektive die Staatsbürgerschaft des Landes, indem man lebt, weiterhin die beste Voraussetzung dafür, ein politischer Akteur sein zu können, und wie sich gerade zeigt, auch der einzig wirksame Schutz vor willkürlicher Abschiebung. Während dieses Recht unter Staatsbürger:innen schlicht wie ein Privileg vererbt wird, muss es von Migrierenden erworben werden. Bisweilen muss die Sichtbarkeit für diese Anliegen schlicht erstritten werden. 
+
+### Einbürgerungsdilemma
+
+Ohne sinnvolle Perspektive auf politische Teilhabe und Einbürgerung von *resident aliens* besteht die Gefahr einer dauerhaften Statusdifferenz, die sich delegitimierend auf die Demokratie auswirkt. 
+
+In Deutschland leben aktuell rund 14 Millionen Menschen ohne deutschen Pass. Das sind rund 15% der Gesamtbevölkerung. Im Jahr 2024 erhielten rund 200.000 Personen die deutsche Staastangehörigkeit. Selbst ohne weitere Zuwanderung würde es also 70 Jahre dauern, bis alle eingebürgert wären.
+
 
